@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JoJo-Tech120
+- 👀 I’m interested in photography, animation, art, problem solving, video games and game dev
+- 🌱 I’m currently learning html and css, aswell with Ux design
+- 💞️ I’m looking to collaborate on problems, getting better.
+- 📫 How to reach me? On here I guess till I get the hang of all of this. :)
